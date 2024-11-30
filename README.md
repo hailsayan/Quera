@@ -1,1 +1,0 @@
-just quera lessons
